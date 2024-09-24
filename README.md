@@ -1,4 +1,4 @@
-# 🎰 Casino Oyna: Büyük Kazançlar İçin Şansınızı Deneyin [https://casinotr.link/gWCRZ4](https://casinotr.link/gWCRZ4)
+# 🎰 Casino Oyna: Büyük Kazançlar İçin Şansınızı Deneyin [Casino Oyna](https://casinotr.link/gWCRZ4)
 
 ## 🎲 Casino Oyna ile Eğlenceye ve Kazanca Adım Atın!
 
